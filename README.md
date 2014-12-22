@@ -36,9 +36,265 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Admirable and memorable histories containing the wonders of our time. Collected into French out of t
+
+1. To the Honorable Knight, Sir Walter Cope.
+
+1. The Authors aduertisment to the courteous Reader.
+
+1. The Printer to the Reader.
+
+1. A Table of the Chapters of this Booke.
+
 #####Body#####
+
+1. A strange accident of a yong Maide.
+
+1. A false accusation seuerely punished.
+
+1. A woman in Child-bed which abounded with Milke.
+
+1. Meruailous Aduertisements.
 LEVVIS the second King of Hungary, beeing at Buda, and the Castle gates shut (as the custome is) whi
+1. Adulteries punnished.
+
+1. Agilitie and force.
+
+1. Ridiculous and vaine Ambition.
+
+1. A meruaylous Apparition.
+
+1. Satanicall Apparitions.
+
+1. Diuers Apparitions in the Ayre.
+
+1. Of some that haue lost all appetite of drinking and eating.
+
+1. Strange Appetites.
+
+1. Rash Attempts punnished.
+
+1. Swallowers. Merueillous Histories of some that haue swallowed diuers strange things into the stomacke, and what hath ensued.
+
+1. The following Histories report the dangers many haue beene in, that vnwittingly or otherwise, haue swallowed things that haue stuck in the throate, or els where by the which there haue followed diuers troublesome and pittifull accidents.
+
+1. Barbarous People made milde and gentle through wisedome.
+
+1. Light Hurts proued mortall.
+
+1. Wounds cured.
+
+1. Of Theeues and Murtherers.
+
+1. Strange, horrible, and very pittifull Accidents.
+
+1. Of the Heart of man. Diuers Histories thereof in our time.
+
+1. Of Comets.
+
+1. A violent Compassion.
+
+1. Conceptions and Deliueries before they were of age.
+
+1. Notable Continency.
+
+1. Of a Mans body hardened or become a stone.
+
+1. Guilty Consciences.
+
+1. Eceeding strange Crueltie punnished.
+
+1. Notable deliuerances and by extraordinarie meanes.
+
+1. Demoniacks. Examples of diuers illusions of Sathan.
+
+1. A Golden Tooth in the mouth of a Childe of Silesia.
+
+1. Desperate Persons.
+
+1. Merueylous Sleepers.
+
+1. Strange efficacie and power of Satan.
+
+1. Great Fiers.
+
+1. CHILDREN. Memorable Accidents both before and soone after the birth of some.
+
+1. Many Children borne at one Birth.
+
+1. Children deliuered at diuers times, of one bignesse: by superfetation.
+
+1. Children dead in their Mothers wombes, and put forth by strange meanes.
+
+1. Children miraculously preserued.
+
+1. Children in gratefull and peruerse.
+
+1. Children brought vp among Wolues.
+
+1. Children supposed or practised.
+
+1. A Childe of Stone.
+
+1. Of the Caesarien deliuery or Section.
+
+1. Seditious Commotions, caused by Exactions.
+
+1. Prodigious spirits.
+
+1. Sparkles of Fire.
+
+1. Fantastiques.
+
+1. Women that haue become Men.
+
+1. Bodily strength.
+
+1. Thunder and Lightning.
+
+1. Horrible fury.
+
+1. Of Giants.
+
+1. An extraordinarie Cure.
+
+1. A man lame of the Gout preserued.
+
+1. A Man before Age.
+
+1. A horrible Iealousie.
+
+1. Impiety punnished.
+
+1. Imagination.
+
+1. Notable Impostures.
+
+1. Imprecations prophane and blasphemous speeches.
+
+1. Rash Iudgements.
+
+1. Famous and remarkable Iudgements.
+
+1. Iudges no Iudges, but most vniust and detestable.
+
+1. Wonderfull Fasting.
+
+1. Iustice.
+
+1. A notable Theefe.
+
+1. Liberalitie.
+
+1. Magnanimity.
+
+1. Secret and vne qual marriages vnfortunate.
+
+1. Detestable Cursings.
+
+1. Melancholike, Madd, Franticke, Furious and enraged persons.
+
+1. Excellencie of Memorie.
+
+1. Memorie lost and recouered againe.
+
+1. Father fertill in his ofspring.
+
+1. Mothers fertill in Lignage issued from them.
+
+1. Vigorous Mothers.
+
+1. Mother and Children preserued from death.
+
+1. Contempt of Paine.
+
+1. Murthers discouered by strange meanes, and punnished.
+
+1. Persons that liued a long time without eating or drinking.
+
+1. Singular Modestie, yeelding to a seuere Censure.
+
+1. A Mocker mockt.
+
+1. A death worthy obseruation.
+
+1. Nature changed.
+
+1. Wonderfull Natures.
+
+1. A dolefull Marriage.
+
+1. Adulterers punnished.
+
+1. Vehement Passions of Sorrow, Ioy, Iealousie, Feare and Heauinesse.
+
+1. Of a wonderfull Turkish Pilgrim.
+
+1. Periurie punished.
+
+1. Prodigious raine and haile.
+
+1. Prediction.
+
+1. A Prisoner freede.
+
+1. A Processe ended by an extraordinary meanes.
+
+1. Dangerous Prognostications.
+
+1. A wonderfull Ransom.
+
+1. A miserable Rape.
+
+1. Execrable Rauishers punished by a valiant hand.
+
+1. Recompenses of nature.
+
+1. A wonderfull flowing.
+
+1. A Generous and memorable Resolution.
+
+1. Resemblance.
+
+1. Gold and Siluer contemned.
+
+1. A Pittifull Ruine.
+
+1. Strange Ruines.
+
+1. A wonderfull drawing of bloud.
+
+1. A desired Graue.
+
+1. Sorceries, Impostures and strange illusions of Satan descouered.
+
+1. A bloudie sweat.
+
+1. A Miserable Rashnesse.
+
+1. Treasors found spoiled, lost, sought for againe vainely and dangerously.
+
+1. Traitors punished.
+
+1. Earthquakes.
+
+1. Of Valour.
+
+1. Vanity.
+
+1. Vanity of the World represented in state.
+
+1. A furious Vanity.
+
+1. Wormes in mans body.
+
+1. Old Men.
+
+1. Age growne young againe.
+
+1. Strange, Fearefull, and horrible Visions.
+
+1. Wonderfull Visions in the ayre.
+
 **Types of content**
 
   * There are 29 **verse** lines!
